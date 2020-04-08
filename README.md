@@ -8,3 +8,4 @@ i have a somewhat odd format:
  - *italic text* = my actions or thoughts
  - \<other person name\> + normal text = other person talking
  - \<other person name\> + *italic text* = other characters actions
+ - **bold text** = info
