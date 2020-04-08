@@ -29,4 +29,10 @@ i think they are negotiating something, either way the scientists come back with
 *they have been warning me against the florans. why would they be doing this? Maybe they dont want me with my own kind... but why?*
 
 ---
-I did it. i escaped their cultish ways
+I did it. i escaped their cultish ways. now to escape them...
+
+---
+*blood dripping from mouth* *heavy breathing* i made it, i made it out. but at what cost? the lives of those who raised me. i best get out of here before the guards come. i am going to start looking for them. maybe they can show me what i have never been able to learn.
+
+---
+i found them. my search is over. i made a ship from some scraps i found and vines,  and i found them, they say they are from the ramfar, and i think they will help me. i guess this is where my adventure begins.
